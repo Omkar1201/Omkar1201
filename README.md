@@ -8,7 +8,7 @@
 
 - 📫  Reach me via email **omkarsalunkhe3597@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1zVOxVFOw5-qmTG_tbqFVL6-RDrytxAdk/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1cnLIakJkngq5qvVMsbp7YKRMa15oi2GI/view?usp=sharing)
 
 
 <h3 align="left">Connect with me:</h3>
